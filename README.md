@@ -1,2 +1,5 @@
-# my-Collections
-my Collections o Stamps Coins &amp; Banknotes, Trading Cards etc...
+# my Collections
+
+
+my Collections of 
+Stamps Coins &amp; Banknotes, Trading Cards etc...
